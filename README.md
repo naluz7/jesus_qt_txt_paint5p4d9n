@@ -1,1 +1,0 @@
-# jesus_qt_txt_paint5p4d9n
